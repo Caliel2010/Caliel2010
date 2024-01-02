@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Caliel2010
-- 👀 I’m mesmerized by guns
+- 👀 I'm very mesmerized by guns
 - 🌱 I’m currently learning english
 - 💞️ I’m so cute C:
 - 📫 My email is Gereicaliel@gmail.com
